@@ -1,6 +1,6 @@
-- 👋 Hai,Gw Takashi/Nafan
+- 👋 Hai,Gw izuka
 
-- Gw noob yah
+- Gw pemula
 
 - Gw masih esempe🗿 bocil gw cog sumpah
 
